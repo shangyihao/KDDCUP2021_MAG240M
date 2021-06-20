@@ -1,4 +1,4 @@
-# Track List
+# Trick List
 
 ## 1. Relational Sample
 
